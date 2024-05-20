@@ -17,6 +17,7 @@ You can reach out to me via [Linktree](https://linktr.ee/Yash8899) to see all th
 He/Him
 
 ## ⚡ Fun Fact
-When I'm not coding, I love exploring the latest tech trends and innovations. I'm also an avid gamer and enjoy playing strategy games in my free time.
+When I'm not coding, I love exploring the latest tech trends and innovations.
+
 
 ---
